@@ -1,1 +1,3 @@
-- 👋 Hi, I’m @CamSer2010
+- 👋 Hi, I’m Camilo Serrano - @CamSer2010
+-    I´m from Bogotá, Colombia   
+- 
